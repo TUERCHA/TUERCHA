@@ -1,5 +1,6 @@
 ## Hi there 👋
-
+I’m currently learning someting New! And，im a creative person.
+I come up with a lot of wild ideas, but I can't put them into practice. If you're interested in my thoughts, we can have a chat.
 <!--
 **TUERCHA/TUERCHA** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
